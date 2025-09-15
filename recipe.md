@@ -6,12 +6,13 @@
 - 3/4 cup unsweetened cocoa powder
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
-- ...
+- 10 cups hot sauce
+- 5 cups salt
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, chocolate chips, and vanilla extract.
-3. ...
+3. Do a little dance to celebrate your progress
 
 ## Additional Directions by Alice:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
